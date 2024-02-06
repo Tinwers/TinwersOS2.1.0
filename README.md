@@ -14,3 +14,6 @@
   
   TinwersOS 2.1.0: https://mp.weixin.qq.com/s?__biz=MzkxODYzNTY0NA==&mid=2247483664&idx=1&sn=ecd698a849e6826f87b0ed4d65eb4a56&chksm=c02aa032ca9a803bb6772966fa261fb7bb1d59fd17905b5f5f1712d2bb02fadc56e588a5cfce&scene=132&exptype=timeline_recommend_article_extendread_samebiz#wechat_redirect
   
+另外提一句：
+
+TinwersOS专属网站已经制作完成且发布：https://tinwersos2.wordpress.com，其他网站均为假货。
