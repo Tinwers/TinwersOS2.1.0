@@ -16,4 +16,8 @@
   
 另外提一句：
 
-TinwersOS专属网站已经制作完成且发布：https://tinwersos2.wordpress.com，其他网站均为假货。
+TinwersOS专属网站已经制作完成且发布：https://tinwersos2.wordpress.com
+
+如果看见其他网站有关于TinwersOS的东西，均为假货!!!
+
+目前我只有微信公众号tinw和GitHub账号，夸克网盘用来传输文件！！！
