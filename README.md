@@ -16,7 +16,7 @@
   
 另外提一句：
 
-TinwersOS专属网站已经制作完成且发布：https://tinwersos2.wordpress.com
+TinwersOS专属网站已经制作完成且发布：https://tinwersos2.wordpress.com (2025.3.5：现在这个网站已经停更，后续可能还会再用，不一定)
 
 如果看见其他网站有关于TinwersOS的东西，均为假货!!!
 
